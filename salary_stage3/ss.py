@@ -1,1 +1,0 @@
-,nksjg s. nl/ks 
