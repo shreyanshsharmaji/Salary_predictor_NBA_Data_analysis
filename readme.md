@@ -1,1 +1,1 @@
-# NBA data analysis
+# Salary Predictor NBA data analysis
